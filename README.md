@@ -2,7 +2,7 @@
 
 Meu nome é Arthur Severo 
 
-- Estou estudando no Alura
+- Estou estudando no [Alura](https://www.Alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organozação e compartilhamanto dos meus projetos desenvolvidos
 
