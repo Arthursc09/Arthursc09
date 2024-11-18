@@ -10,6 +10,6 @@ Meu nome é Arthur Severo
 
 - Arthur.severo.chaves@escola.pr.gov.br
 
-- https://www.instagram.com/thurzin_sc08/
+- @thurzin_sc08
 
 ![](https://tenor.com/pt-PT/view/neymar-neymar-jr-brazil-football-gif-27336445)
