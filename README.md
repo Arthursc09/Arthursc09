@@ -10,4 +10,4 @@ Meu nome é Arthur Severo
 
 - Arthur.severo.chaves@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/fKqAw2W2LU8AAAAd/neymar-neymar-jr.gif)
+![](https://tenor.com/pt-PT/view/neymar-neymar-jr-brazil-football-gif-27336445)
