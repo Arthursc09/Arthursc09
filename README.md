@@ -12,4 +12,7 @@ Meu nome é Arthur Severo
 
 - @thurzin_sc08
 
-![](https://tenor.com/pt-PT/view/neymar-neymar-jr-brazil-football-gif-27336445)
+![](https://media1.tenor.com/m/H85SJt4qrFgAAAAd/wagging-finger-leo-messi.gif)
+
+
+
